@@ -1,2 +1,0 @@
-# Ajonge
-No illness 
